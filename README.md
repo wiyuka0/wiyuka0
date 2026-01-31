@@ -1,4 +1,4 @@
-## 🧃 Hi there! I'm wiyuka! ヾ(๑╹ヮ╹๑)ﾉ” (Not `Wiyuka`)
+## 🧃 Hi there! I'm wiyuka! ヾ(๑╹ヮ╹๑)ﾉ” (w is lowercase)
 
 ### 🎯 About Me
 - 15 years old... `qvq`
